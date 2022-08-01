@@ -1,0 +1,1 @@
+# pensamento1anoasj
